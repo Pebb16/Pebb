@@ -9,4 +9,4 @@ THAKS TO
 -GIRJING
 
 jika ada eror atau apa
-https://line.me/ti/p/~.pebri
+https://line.me/ti/p/~line.kntl
